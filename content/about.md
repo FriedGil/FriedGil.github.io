@@ -1,0 +1,1 @@
+# From a young age, I've had a passion for code. I'm still young, but give it 20 years and my coding longevity will be more impressive.
